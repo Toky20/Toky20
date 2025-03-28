@@ -1,6 +1,5 @@
 ## Hi there 👋
 
-## Nomena m'a juste dit de le faire alors je l'ai fait
 ## Histoire de commencer comme la Génèse
 
 <!--
