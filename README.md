@@ -1,6 +1,6 @@
 ## Chill guy
 
-🎓 Étudiant en Master 2 à la grande université de la misère™.  
+🎓 Étudiant en L3 à la grande université de la misère™.  
 
 💻 Tsy dev ihany no hiveloman'ny olona, fa ny teny rehetra izay aloaky ny vavan'Andriamanitra 
 
