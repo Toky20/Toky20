@@ -1,4 +1,4 @@
-# 🚀 Ramaharisoa Tokiniaina | Full-Stack Software Engineer
+# 🚀 Ramaharisoa Tokiniaina | Software Engineer
 
 **Java/Spring Boot & React Specialist**
 
